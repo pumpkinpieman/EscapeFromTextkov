@@ -9,3 +9,4 @@ Thank you,
 /u/ARasool
 Twitter: @_BTCB_
 Twitch: https://www.twitch.tv/BloodThirstyCheeseBurger
+Discord: https://discord.gg/YY5PYxC
